@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Alexey (@layosh)!
-- 👀 I’m interested in frontend development.
+- 👀 I’m interested in Frontend development.
 - 📫 How to reach me : https://t.me/layosh_by_24 or https://www.instagram.com/alexius.brown.by/ 🤓
 - 🤗 Bon chance! (fr.) 👋
 
